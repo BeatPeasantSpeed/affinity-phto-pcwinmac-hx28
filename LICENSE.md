@@ -1,4 +1,4 @@
-# 
+# Oficial Affinity Photo extensões para Mac OS | Instantâneo Affinity Photo extensões para PC Windows. Com nós de materiais e composição — otimizado para máximo desempenho em cada plataforma.
 
 
 
